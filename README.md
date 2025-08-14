@@ -1,0 +1,1 @@
+# skillcraftInternship-task1populationAnalysis
